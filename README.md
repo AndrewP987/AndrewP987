@@ -5,4 +5,5 @@ Despite it being summer, I am currently taking the time to learn new languages, 
 If you would like to collaborate on a project or talk about other opportunities, my LinkedIn will be below. Feel free to shoot my a message, I'd love to connect. 
 
 My LinkedIn: https://www.linkedin.com/in/andrew-photinakis-b68a39212/
+
 Roadmap website: https://roadmap.sh/
